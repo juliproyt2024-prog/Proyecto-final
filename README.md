@@ -1,1 +1,2 @@
+𝐂𝐚𝐦𝐛𝐢𝐨 𝐂𝐥𝐢𝐦𝐚́𝐭𝐢𝐜𝐨
 ¿Qué es el cambio climático?El cambio climático es la variación a largo plazo de las temperaturas y los patrones atmosféricos del planeta. Aunque puede ocurrir de forma natural, actualmente el término se refiere al calentamiento global acelerado causado por las actividades humanas, principalmente por la emisión de gases de efecto invernadero al quemar combustibles fósiles y talar bosques.
